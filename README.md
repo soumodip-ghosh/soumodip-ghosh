@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on big tech giant 
 - 📫 Reach me using my profile on github  
 - 😄 Pronouns: HE,HIM
-- ⚡ Fun fact: I am not serious about my life anymore😅
+- ⚡ Fun fact: I start before I'm ready😅 — because building is how I learn.
 
 
 ## 🌐 Socials:
